@@ -1,5 +1,4 @@
-![TENGIL](https://github.com/user-attachments/assets/56933c04-2a07-4737-a529-dc130e078c0b)
-
+![TENGIL](https://github.com/user-attachments/assets/7cc385ce-becd-4d03-95fe-4e5008896211)
 
 # TENGIL
 
